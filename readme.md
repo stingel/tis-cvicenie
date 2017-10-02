@@ -15,5 +15,5 @@ Nas tim tvoria clenovia:
 1. Peter Stingel
 2. Michal Ondrejicka
 3. Pavel Miklos
-4.
+4. Samo Korciciak
 
