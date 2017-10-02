@@ -13,7 +13,7 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Peter Stingel
-2.
+2. Michal Ondrejicka
 3.
 4.
 
